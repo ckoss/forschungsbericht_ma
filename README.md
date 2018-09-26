@@ -1,0 +1,2 @@
+# forschungsbericht_ma
+Forschungsbericht Master Soziologie
